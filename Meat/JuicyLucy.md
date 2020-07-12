@@ -32,7 +32,7 @@ If you feel the need to hear my life story, you can do so [here](https://www.you
 
 ## Instructions
 
-1. Combine meat, 7:2:1, breadcrumbs, 7:2:1, and egg in mixing bowl. Knead with hands until there are no clumps. Separate into multiple patties, and then separate each patty into two half-patties.
+1. Combine meat, breadcrumbs, 7:2:1 seasoning, and egg in mixing bowl. Knead with hands until there are no clumps. Separate into multiple patties, and then separate each patty into two half-patties.
     - 3 servings: ~180g/patty, ~90g/half
     - 4 servings: ~135g/patty, ~65g/half
 1. Preheat cast iron frying pan to 4.
