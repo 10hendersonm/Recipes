@@ -9,7 +9,7 @@ If you feel the need to hear my life story, you can do so [here](https://www.you
     - The cook times may vary
     - You're a fat piece of s***
 - [ ] **1/4 Cup** Breadcrumbs
-- [ ] **1 Teaspoon** [7:2:1](../Misc/721.md)
+- [ ] **1 Teaspoon** [7:2:1 Seasoning](../Misc/721.md)
 - [ ] **1** Egg
 - [ ] **1 Cup** Shredded Cheese
     - Possibly less depending on how much cheese your diners like. More on that later.
