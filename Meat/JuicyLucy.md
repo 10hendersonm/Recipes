@@ -7,7 +7,7 @@ If you feel the need to hear my life story, you can do so [here](https://www.you
 - [ ] **1 Pound** 93% Lean Ground Beef
   - You can use fattier beef, but...
     - The cook times may vary
-    - You're a fat piece of shit
+    - You're a fat piece of s***
 - [ ] **1/4 Cup** Breadcrumbs
 - [ ] **1 Teaspoon** [7:2:1](../Misc/721.md)
 - [ ] **1** Egg
