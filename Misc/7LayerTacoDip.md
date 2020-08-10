@@ -4,7 +4,7 @@ If you feel the need to hear my life story, you can do so [here](https://www.you
 
 ## Ingredients
 
-- **1 Can** Pinto Beans
+- **1 Can** Refried Beans
 - **1 Container** Guacamole
 - **1 Container** Sour Cream
 - **1 Packet** Taco Seasoning
@@ -29,7 +29,7 @@ If you feel the need to hear my life story, you can do so [here](https://www.you
 
 ## Instructions
 
-1. Spread **pinto beans** evenly over base of pan until entire base is covered. Rinse spatula after each step as necessary.
+1. Spread **refried beans** evenly over base of pan until entire base is covered. Rinse spatula after each step as necessary.
 1. Spread **guacamole**.
 1. Stir taco seasoning packet into sour cream. Spread **seasoned sour cream**.
 1. Spread half of the **shredded cheese**.
