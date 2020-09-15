@@ -5,9 +5,9 @@ If you feel the need to hear my life story, you can do so [here](https://www.you
 ## Ingredients
 
 - [ ] **1 Pound** 93% Lean Ground Beef
-  - You can use fattier beef, but...
-    - The cook times may vary
-    - ~You're a fat piece of s***.~ 93% beef yields a ~350 calorie patty, where 73% yields a ~650 calorie patty.
+  - You can use cheaper beef, but...
+    - The cook times may vary - fattier burgers cook faster because they cook in their own juices.
+    - 93% beef yields a ~350 calorie patty, where 73% yields a ~650 calorie patty.
 - [ ] **1/4 Cup** Breadcrumbs
 - [ ] **1 Teaspoon** [7:2:1 Seasoning](../Misc/721.md)
 - [ ] **1** Egg
