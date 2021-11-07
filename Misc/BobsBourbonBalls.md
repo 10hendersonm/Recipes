@@ -17,3 +17,4 @@
 1. Shape into 1-1½ inch balls.
 1. Roll into powdered sugar.
 1. Store in tightly closed box for at least 1 week before serving.
+    - "[Mom claimed it had to be six weeks, but her recipe only said one, so I'm guessing it was just her way to get out in front of the holidays.](https://twitter.com/Bob_Mondello/status/1457027578749980672?t=o5dM-Lp9sb7tbYQS4GCq1w&s=19)"
